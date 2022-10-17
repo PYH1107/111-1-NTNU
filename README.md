@@ -6,5 +6,6 @@
       ### 課程筆記區
       ### 作業連結區
       * [個人作業一221004](https://youtu.be/F0ycuPXeksY)
+      * [個人作業二221018](https://youtu.be/ANQ4DESL3JY)
       ### 專題連結區
   
